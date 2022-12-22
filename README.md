@@ -2,5 +2,6 @@
 
 looking for team dc ZeroByte#1337 
 
+![image](https://user-images.githubusercontent.com/94198465/209140248-81ba3397-f523-4d34-b206-0bd9d84395e8.png)
 
-https://media.discordapp.net/attachments/1008423958787403849/1055468359426244638/Ekran_Alnts.PNG?width=926&height=378
+![image](https://user-images.githubusercontent.com/94198465/209140265-3b87c591-0a11-4922-bad3-a62b6e9e4157.png)
