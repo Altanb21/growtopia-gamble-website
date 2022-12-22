@@ -1,5 +1,6 @@
 # growtopia-gamble-website
-https://raw.githubusercontent.com/Altanb21/growtopia-gamble-website/main/Ekran%20Al%C4%B1nt%C4%B1s%C4%B1.PNG
-
 
 looking for team dc ZeroByte#1337 
+
+
+https://media.discordapp.net/attachments/1008423958787403849/1055468359426244638/Ekran_Alnts.PNG?width=926&height=378
